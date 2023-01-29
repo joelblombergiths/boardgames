@@ -57,7 +57,7 @@
 - This war of mine - the board game
 - Through the ages - 2nd edition
 - Tjej middag
-- Trough the ages
+- through the ages
 - Unreal estate
 - Welcome to the dungeon
 - Winterborne
